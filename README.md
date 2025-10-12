@@ -1,1 +1,1 @@
-https://ddd-fx.github.io/shelter-site/shelter/pages/main/
+https://exochemi.ru/projects/rss-pets-shelter/pages/main/
